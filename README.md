@@ -9,7 +9,7 @@ itchy, he/any (no they/them)
 
 perma regressor (puppyre) :3 bodily 19
 
-no dni, i am proship, pro endo, and anti radqueer, if you don't like that, block me
+no set dni, i am proship, pro endo, and anti radqueer, if you don't like that, block me
 
 interact with lots of care, i am having a bad time lately :(
 
