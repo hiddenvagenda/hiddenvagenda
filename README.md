@@ -14,5 +14,7 @@ no set dni, i am proship, pro endo, and anti radqueer, if you don't like that, b
 interact with lots of care, i am having a bad time lately :(
 
   my current interest is markiplier and his egos, please interact if you also like him! :D
+
+  if you recognize me from protree or previous discord servers, please don't bring it up. i am trying to move on from past drama and relationships
   
 </details>
