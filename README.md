@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=runr4bb&style=plastic&label=headpats&color=5E879E)
 
-i think my profile counter died i cant see the number anymore (◞‸◟) lmk if you can see it or if it's just a me issue pls!!!
+i think my profile view counter died i cant see the number anymore (◞‸◟) lmk if you can see it or if it's just a me issue pls!!!
 
 ![](IMG_0907.gif)
 
