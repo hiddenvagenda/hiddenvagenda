@@ -1,5 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=runr4bb&style=plastic&label=headpats&color=5E879E)
 
+i think my profile view counter died i can't see it :(
+
 ![](IMG_0907.gif)
 
 <details>  
