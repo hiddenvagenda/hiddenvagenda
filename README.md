@@ -20,3 +20,12 @@ interact with lots of care, i am having a bad time lately :(
   if you recognize me from protree or previous discord servers, please don't bring it up. i am trying to move on from past drama and relationships
   
 </details>
+
+<details>
+  <summary>magma drawings (drawn with mouse (T_T) )</summary>
+
+  <img width="50%" height="50%" alt="image" src="https://github.com/user-attachments/assets/1d5a47c4-c8ab-4939-a2d8-6fd63c282b99" />
+
+  <img width="50%" height="50%" alt="image" src="https://github.com/user-attachments/assets/1e40ca73-5508-4765-95f9-dfdc799facc6" />
+
+</details>
