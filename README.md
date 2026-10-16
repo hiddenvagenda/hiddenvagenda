@@ -28,4 +28,6 @@ interact with lots of care, i am having a bad time lately :(
 
   <img width="50%" height="50%" alt="image" src="https://github.com/user-attachments/assets/1e40ca73-5508-4765-95f9-dfdc799facc6" />
 
+  <img width="50%" height="50%" alt="image" src="https://github.com/user-attachments/assets/f38c6b8f-e412-4e0d-944e-04689db2c1c8" />
+
 </details>
