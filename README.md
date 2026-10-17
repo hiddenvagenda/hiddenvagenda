@@ -1,3 +1,5 @@
+EX FRIENDS FUCKING LEAVE ME ALONE. I AM NOT IN AN OKAY MENTAL STATE TO DEAL WITH THAT SHIT.
+
 ![](https://komarev.com/ghpvc/?username=runr4bb&style=plastic&label=headpats&color=5E879E)
 
 i think my profile view counter died i can't see it :(
